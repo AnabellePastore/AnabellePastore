@@ -1,5 +1,5 @@
 # 💫 Olá, bm vindos ao meu perfil:
-🔭 busco ser feliz<br>🌱 Cursando técnico em Programação de Jogos Digitais<br>😄 Pronomes: ela/dela<br>⚡ objetivos: juntar meus conhecimentos de ciência da computação com biologia 
+🔭Busco ser feliz<br>🌱 Cursando técnico em Programação de Jogos Digitais<br>😄 Pronomes: ela/dela<br>⚡ Objetivos: juntar meus conhecimentos de ciência da computação com biologia 
 
 
 ## 🌐 Redes Socias:
